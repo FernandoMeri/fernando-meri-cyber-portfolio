@@ -1,0 +1,2 @@
+A highly self-organized and methodical individual, I am a fast learner in technical skills such as Python and Linux, complemented by strong written and verbal communication abilities. My passion for cybersecurity stems from a commitment to protecting organizations through proactive risk mitigation for critical infrastructure and safeguarding individuals by ensuring data integrity and confidentiality, always striving for the definitive resolution of security challenges and a well-regulated environment.
+
